@@ -1,0 +1,1 @@
+<h2>Musik bisa membuatmu menangis, tertawa, ceria, semangat, sedih, bahagia, dan damai. Bahkan musik mampu membuatmu merasakan perasaan tadi secara bergantian dalam waktu singkat. Adakah hal lain yang mampu melakukan hal itu selain musik?</h2>
